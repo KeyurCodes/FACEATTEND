@@ -9,8 +9,7 @@
 
 - 📫 How to reach me **keyurt502@gmail.com**
 
-- 📄 Know about my experiences (https://drive.google.com/file/d/194DpPyfUBoBKoZHXEDIB8A2KhXCkRrFT/view?usp=drive_link)]](https://drive.google.com/file/d/1mxQWKVmbGETTZxLusIBYhH9ciRxtu0On/view?usp=sharing)
-
+- 📄 Know about my experiences https://drive.google.com/file/d/1mxQWKVmbGETTZxLusIBYhH9ciRxtu0On/view?usp=drivesdk 
 - ⚡ Fun fact **I think I'm funny**
 
 <h3 align="left">Connect with me:</h3>
